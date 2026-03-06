@@ -3,6 +3,7 @@ Someone passionate about IT and learning how and why everythings works together.
 
 
 🌐 About This Assignment
+
 This assignment represents the beginning of my digital presence online — a space where my academic journey, personal identity, and passion for technology comes together.
 This assignment helped me to learn more about myself and what is import to me. Showing me what my boundaries are, but also what my abilities are.
 
