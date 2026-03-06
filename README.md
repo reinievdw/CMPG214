@@ -1,4 +1,4 @@
-👋 Good day, I'm Reinhardt van der Walt
+👋 Good day, I'm Reinhardt van der Walt.
 Someone passionate about IT and learning how and why everythings works together.
 
 🌐 About This Assignment
